@@ -1,7 +1,1 @@
-hello 2021
-world
-mmmmmmmmmmmmmmmmmmmmmmmmm
-Hello Anca!
-Vine toamna!
-/////////tralalala////
-dfbvbbxdvbcm
+Astazi este 1 octombrie!
